@@ -1,0 +1,2 @@
+- https://github.com/AutomationPanda
+- https://discord.com/channels/1127340805741359164/1328023266853650532
